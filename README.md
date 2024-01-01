@@ -1,2 +1,2 @@
 # know-shafayat.github.io
-get to know Shafayat. He's a person.
+Get to know Shafayat. He's a person.
